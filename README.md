@@ -1,3 +1,0 @@
-# TrueSite-BIM
-
-## Team
